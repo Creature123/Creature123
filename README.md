@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Creature123 ( Sourav Das )
 - 
-- having 7+ years of IT experience 
+- having 6.8 years of IT experience 
 
 
 - 👀 I’m interested in :
